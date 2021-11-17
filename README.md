@@ -1,3 +1,4 @@
+![IMG_20211112_172930](https://user-images.githubusercontent.com/88895370/142162786-2caf4204-f6d6-4cf9-a1b5-2899edf234c2.jpg)
 - 👋 Hi, I’m @hardtimes-code
 - 👀 I’m interested in ...Machine Learning/Data Science and Programming
 - 🌱 I’m currently learning ...Phyton and Jave 
@@ -20,3 +21,4 @@ limited. Im looking for people who are willing to listen to my story and help me
 If i have to prove that im not some creepo child stalker, feel free to ask me for a video chat, or better yet, check my background
 I just need someone to believe me..and to help me go about things the right way, when there are legal obsdtacles in place. Any 
 Advice is welcome
+https://photos.app.goo.gl/NXvpqR5AfEqBVmwz6
